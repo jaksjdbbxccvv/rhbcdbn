@@ -1,2 +1,0 @@
-# rhbcdbn
-facebook hacking apps
